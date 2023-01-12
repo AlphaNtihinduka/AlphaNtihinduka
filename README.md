@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently learning **Javascript.**
 
-- ⚡ Fun fact **I stress free**
+- ⚡ Fun fact **Listening to music, playing video games, watching movies, touring**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
